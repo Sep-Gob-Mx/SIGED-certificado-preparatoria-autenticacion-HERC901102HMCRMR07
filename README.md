@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HERC901102HMCRMR07
+HERC901102HMCRMR07
